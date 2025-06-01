@@ -1,2 +1,1 @@
-# deneme-bonusu
-Deneme Bonusu Veren Siteler 2025
+Deneme Bonusu Veren Siteler
